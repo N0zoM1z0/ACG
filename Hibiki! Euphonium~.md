@@ -17,7 +17,10 @@ yabari最喜欢的京吹还是属于南中四姬的京吹呐。。
 京吹的落幕，也是一个时代的终结了。。。 归于平淡，才是一切的宿命。
 多年再回首，希望还能有激情喊出`Kitauji Fightooooo！`，还能记得每一个感人的瞬间吧~
 
+---
+
 PS：最喜欢的伞霙~
+
 ![image](https://github.com/user-attachments/assets/f8ab1c24-e093-47af-a1f4-b7751ae87061)
 
 ![image](https://github.com/user-attachments/assets/07073934-d59a-4ad1-995e-390805226428)
